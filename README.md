@@ -7,7 +7,13 @@ Telegram 是一款流行的消息应用程序，以其隐私功能和加密聊�
 
 所以建议临时使用一次的用户就使用虚拟号注册一个。而注重长期稳定使用的就请考虑购买一个稳定的tg号。
 
-比较靠谱的商家可以到[淘号网](https://taohao163.com/)：[购买电报账号](https://taohao163.com/buy/6)
+比较靠谱的商家可以到
+
+## [淘号网](https://taohao163.com/)：[购买电报账号](https://taohao163.com/buy/6)
+或者：
+
+## [电报号频道](https://telegramchannel.net/)
+
 
 实测稳定靠谱几个月。
 
